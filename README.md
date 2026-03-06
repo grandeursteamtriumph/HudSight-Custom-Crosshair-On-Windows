@@ -1,3 +1,6 @@
+<img width="1194" height="337" alt="image" src="https://github.com/user-attachments/assets/54a07f39-c48e-4db5-a226-f4e2e45fb5f1" />
+
+
 <img width="1536" height="1024" alt="20260305_1758_Превью Lossless-Scaling_remix_01kjzjc9zmezmstv7q9s74gher(1)" src="https://github.com/user-attachments/assets/5482719e-b41f-4071-9b4d-55005076849b" />
 
 # 🟨 Lossless Scaling – Boost PC Gaming Performance with Frame Generation & Upscaling
